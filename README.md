@@ -1,2 +1,0 @@
-# tamk
-To All Mankind
